@@ -1,0 +1,1 @@
+O script Estável ainda não está disponivel para download publico :C.
